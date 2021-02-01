@@ -1,0 +1,1 @@
+# memori-okto-yang-menyenangkan
